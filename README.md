@@ -1,0 +1,2 @@
+# galaxyJ7pro
+Internet 
